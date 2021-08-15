@@ -1,3 +1,3 @@
 #kokoa_talk_clone
 
-Very good!
+I'm so cool!
